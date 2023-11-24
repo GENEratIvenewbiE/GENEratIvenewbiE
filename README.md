@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @GENEratIvenewbiE
+- 👀 I’m interested in AI.
